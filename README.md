@@ -1,1 +1,1 @@
-# FF-BS-SETTINGS
+https://github.com/ITZ4PARTH/FF-BS-SETTINGS.git# FF-BS-SETTINGS
